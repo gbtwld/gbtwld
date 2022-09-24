@@ -1,1 +1,1 @@
-My name is JaeJung Doo^^
+My name is JaeJung Doo
